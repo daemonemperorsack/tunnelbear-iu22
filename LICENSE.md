@@ -1,4 +1,4 @@
-
+Hide.me top App: free-trial & static-IP is the best Hide.me app, featuring free-trial and static-IP. Secure, fast, and optimized for privacy.
 
 
 
